@@ -1,0 +1,1 @@
+Primer fitxer al primer repositori de Roger Companys Solà sense coronavirus
